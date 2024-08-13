@@ -1,1 +1,1 @@
-Checking out my corperate github account? Wow, you're like, totally obsessed with me.
+i always say "morning" instead of "good morning" because if it was a good morning i'd be fishing
